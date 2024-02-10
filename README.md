@@ -1,1 +1,1 @@
-# Orange---Colorbox-V2
+# Pink---Colorbox-V7
